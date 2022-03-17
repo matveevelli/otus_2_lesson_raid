@@ -1,0 +1,1 @@
+# otus_2_lesson_raid
